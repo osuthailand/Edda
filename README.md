@@ -1,2 +1,2 @@
 # Edda
-Rina's new frontend
+alhamdulillah free palestine
